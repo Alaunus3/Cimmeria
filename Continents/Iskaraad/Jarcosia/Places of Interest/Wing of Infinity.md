@@ -1,0 +1,1 @@
+A wing of The [[Infinity Archive]] that was once long lost, [[Jarcosia]] founded its nation city-state upon it, and what would later become their capital city, [[Navirra]].

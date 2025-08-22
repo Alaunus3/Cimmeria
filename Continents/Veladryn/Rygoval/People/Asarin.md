@@ -1,0 +1,1 @@
+A member of the [[Scale-Bound]] in [[Shyvale]], [[Rygoval]]. Worshipper of [[Ranas, The Havenseeker]]. Asarin is a powerful and stoic [[Anomai]] who bound to the strongest [[Caeleo]] of this generation, [[Gilgamesh]]. 

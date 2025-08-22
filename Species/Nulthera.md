@@ -1,0 +1,1 @@
+A Nulthera, or "Beast of Nothingness" are a fitting name for beings that defy natural order, and truth. 

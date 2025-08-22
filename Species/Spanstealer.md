@@ -1,0 +1,1 @@
+A Spanstealer is a creature created by the loss of [[Span]]. Such acts could be murder, illness, ritual, etc. Anything that cuts the remaining life of a creature. The Span builds up and eventually [[Tethyr]]'s together, creating a Spanstealer.

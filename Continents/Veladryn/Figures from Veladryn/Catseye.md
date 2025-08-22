@@ -1,0 +1,1 @@
+An [[Obake]] who was apart of [[The Gems]], Catseye was killed by [[Opal]] when she refused to kill [[Perseus Deva]]. 

@@ -1,0 +1,1 @@
+A worship of the Colossi that once roamed Iskaraad, communion is often done with their bodies within the Cove of Colossi

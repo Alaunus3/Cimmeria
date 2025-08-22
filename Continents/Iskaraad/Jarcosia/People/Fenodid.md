@@ -1,0 +1,1 @@
+[[Xomedan]] Larger man with horns in a halo shape, a single tooth replaced with gold. 

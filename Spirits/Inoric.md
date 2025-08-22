@@ -1,0 +1,1 @@
+A malevolent [[Spirit]] who's dominated by [[Aspar Yoset]]

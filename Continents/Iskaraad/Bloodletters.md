@@ -1,0 +1,1 @@
+An extinct group of warring factions in [[Iskaraad]] during The[[ Era of Apostasy]], held loosely together by fear of their leader, the warlord [[Malbor]].

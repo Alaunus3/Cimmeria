@@ -1,0 +1,1 @@
+A member of the [[Scale-Bound]] in [[Shyvale]], [[Rygoval]]. Worshipper of [[Ranas, The Havenseeker]]. Kadash is an [[Anomai]] with [[Khoran]] heritage. The Khoran heritage was seen when Kadash bound with [[Kae-Ha]]. 

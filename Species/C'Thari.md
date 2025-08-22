@@ -1,0 +1,1 @@
+A race created from The [[Selenic Heart]] [[Pre-Exodus]] to carry out [[Vaena]]'s will. C'Thari are most known for their huge stature, snow white skin, and lack of a mouth. This leaves them to communicate primarily through the beating of their chest or stomps in tense combat, but in more casual scenarios, through [[Hushweave]]

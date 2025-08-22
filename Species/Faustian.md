@@ -1,0 +1,1 @@
+Rare and dangerous practitioners of [[Rubeus]] magics that allow them to bind life forces together, creating bonds or curses that persist until [[Transference]]

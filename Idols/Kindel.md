@@ -1,0 +1,1 @@
+Kindel is a [[Spirit]] and [[Idol]] of Severing. Kindel currently shares [[Covenance]] with Zotia.

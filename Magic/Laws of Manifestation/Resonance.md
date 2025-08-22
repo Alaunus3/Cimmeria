@@ -1,0 +1,1 @@
+[[Law of Magic]], ability to feel life essences and gather energy from the world around you.

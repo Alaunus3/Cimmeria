@@ -1,0 +1,1 @@
+While Opal may be the strongest member of [[The Gems]], Azurite is the most dangerous. His skillsets are used primarily in places where an [[Obake]] being discovered is not as important as the damage it can cause, for example in weakening the defenses of [[Vaelis Kuraokami]][[ Pre-Exodus]] when [[Asami Navi]] sieged [[Palereach]]. 

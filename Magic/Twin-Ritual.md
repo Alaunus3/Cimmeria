@@ -1,0 +1,1 @@
+A magical ritual by the [[Devan]] performed by [[Moth-Visnu]] primarily. But Twins have been seen as a theme throughout all of [[Cimmeria]]; originating from the [[Idol]] [[Ressa and Emba]]

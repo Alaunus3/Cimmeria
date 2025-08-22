@@ -1,0 +1,1 @@
+A [[Caeleo]] of [[Ranas, The Havenseeker]] who landed in [[Shyvale]], [[Rygoval]] and was bound by a [[Scale-Bound]] named [[Kadash]]

@@ -1,0 +1,1 @@
+A warlord that would meet with other [[Divine]] on [[Threx, Divine of Rebellion]]'s behalf in The [[Era of Apostasy]]

@@ -1,0 +1,1 @@
+Northern city and ruins on the [[Hyperion Plateau]] apart of The [[Hyperion Oath]], previously ruled over by [[House Kuraokami]] during the [[Era of Lords]]

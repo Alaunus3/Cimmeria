@@ -1,0 +1,1 @@
+A [[Species]] created or crafted for a specific purpose

@@ -1,0 +1,1 @@
+An ancient [[Era of Apostasy]] civilization of primarily [[Kynikos]] who were ruled over and warred/rebelled against [[Odrass, Divine of Mutation]]

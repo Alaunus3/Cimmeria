@@ -1,0 +1,1 @@
+Also known as The World Plague, The Lavender was a deadly fog that covered the whole of [[Cimmeria]] from the end of the [[Era of Apostasy]], through The[[ Era of Lords]], until [[Exodus]]

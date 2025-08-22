@@ -4,21 +4,17 @@
     "type": "split",
     "children": [
       {
-        "id": "b13089b0961b1d53",
+        "id": "9b5fdf78eece704d",
         "type": "tabs",
         "children": [
           {
-            "id": "6368fd8221111339",
+            "id": "69417d06f3908aef",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "CONFIG.md",
-                "mode": "source",
-                "source": false
-              },
+              "type": "empty",
+              "state": {},
               "icon": "lucide-file",
-              "title": "CONFIG"
+              "title": "New tab"
             }
           }
         ]
@@ -74,7 +70,8 @@
               "title": "Bookmarks"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -94,7 +91,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "CONFIG.md",
+                "file": "Aellorium/Aellorium.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +101,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for CONFIG"
+              "title": "Backlinks for Aellorium"
             }
           },
           {
@@ -113,12 +110,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "CONFIG.md",
+                "file": "Aellorium/Aellorium.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from CONFIG"
+              "title": "Outgoing links from Aellorium"
             }
           },
           {
@@ -142,13 +139,13 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "CONFIG.md",
+                "file": "Aellorium/Aellorium.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline of CONFIG"
+              "title": "Outline of Aellorium"
             }
           },
           {
@@ -166,7 +163,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 200
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -180,11 +177,53 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "a3d1501f08c38cde",
+  "active": "83282bc004ff0f14",
   "lastOpenFiles": [
-    "icon.png",
-    "README.md",
-    "zola/sass/bootstrap/README.md",
-    "CONFIG.md"
+    "CONFIG.md",
+    "Untitled",
+    "Valuable Materials/Audonite.md",
+    "Valuable Materials/Woven Nimbus.md",
+    "Valuable Materials/Valuable Material.md",
+    "Valuable Materials/Saidarus.md",
+    "Valuable Materials/Pyroclast.md",
+    "Valuable Materials/Moonblade.md",
+    "Valuable Materials/Flurris.md",
+    "Valuable Materials/Desirra.md",
+    "Valuable Materials/Elodrium.md",
+    "Valuable Materials/Axonite.md",
+    "Valuable Materials/Amerite.md",
+    "Valuable Materials",
+    "Spirits/Caeleo/Zurry.md",
+    "Spirits/Caeleo/Zaidu.md",
+    "Spirits/Caeleo/Kae-Ha.md",
+    "Spirits/Caeleo/Gilgamesh.md",
+    "Spirits/Caeleo/Panla.md",
+    "Spirits/Caeleo/Eye-Una.md",
+    "Spirits/Caeleo/Aruhana.md",
+    "Spirits/Spirit.md",
+    "Spirits/Salis.md",
+    "Spirits/Solis.md",
+    "Spirits/Jun.md",
+    "Spirits/Caeleo",
+    "Spirits/Inoric.md",
+    "Spirits",
+    "zQuick Notes.md",
+    "Zeffial.md",
+    "Untitled.base",
+    "zImages/thinh-pham-forsaken-land-render-demo-4.jpg",
+    "zImages/Sol.jpg",
+    "zImages/Skane Demon Enhances.jpg",
+    "zImages/Skane Demon.jpg",
+    "zImages/Salis.jpg",
+    "zImages/Essentia 9, Tapestry.jpg",
+    "zImages/Morikai.jpg",
+    "zImages/Essentia 8, Wildsong.jpg",
+    "zImages/Essentia 7, Greatforge.jpg",
+    "zImages/Essentia 6, Span.jpg",
+    "zImages",
+    "Species",
+    "Races",
+    "Player Characters",
+    "Magic/Halcyon"
   ]
 }

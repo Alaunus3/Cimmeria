@@ -1,0 +1,1 @@
+Seraph of The [[Remnants of Threx]], Avatar of [[Threx, Divine of Rebellion]]

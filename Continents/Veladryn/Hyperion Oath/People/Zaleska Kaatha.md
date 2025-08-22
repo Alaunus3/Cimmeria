@@ -1,0 +1,1 @@
+A woman who held [[Ascended]] energies [[Pre-Exodus]]

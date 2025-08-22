@@ -1,0 +1,1 @@
+A [[Caeleo]] who crashed far from both [[Svjalria]] and [[Rygoval]] and was bound by [[Illarion]] in a forceful binding. 

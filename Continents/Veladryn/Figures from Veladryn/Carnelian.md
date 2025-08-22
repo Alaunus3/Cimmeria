@@ -1,0 +1,1 @@
+An [[Obake]] and member of [[The Gems]] who specializes in Political and Militaristic maneuvering. Due to these specializations, Carnelian is the primary Obake sent to weaken governmental infrastructures on extremely high case missions. Carnelian is trained on all manner of economic and governmental styles, in addition to all methods of warfare.

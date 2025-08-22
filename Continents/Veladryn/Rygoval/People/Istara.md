@@ -1,0 +1,1 @@
+A member of the[[ Scale-Bound]] in [[Shyvale]], [[Rygoval]]. Istara is bound to [[Aruhana]]. Worshipper of [[Ranas, The Havenseeker]]. Istara is a smart [[Anomai]] with a family to protect; bound to [[Aruhana]].

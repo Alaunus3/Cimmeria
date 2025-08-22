@@ -1,0 +1,1 @@
+The capital city of The [[Hyperion Plateau ]]and of [[Hyperia]]. Equinox holds immense history as one of the oldest standing cities on [[Veladryn]] and upon all of [[Cimmeria]].

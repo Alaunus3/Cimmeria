@@ -1,0 +1,1 @@
+Twin [[Idol]] that died to create [[Resonance]] and [[Embodiment]]

@@ -1,0 +1,1 @@
+Political power in eastern [[Iskaraad]]

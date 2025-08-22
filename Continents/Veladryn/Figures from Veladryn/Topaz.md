@@ -1,0 +1,1 @@
+A large and formidable [[Obake]] who can take the shape of larger races such as different [[Obri]] and Pre-Exodus the [[C'Thari]]

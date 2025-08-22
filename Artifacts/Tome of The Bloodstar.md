@@ -1,0 +1,1 @@
+A Tome that tapped directly into the [[Bloodstar]], and allowed a person to steal the effects of [[Transference]]. Its wielder would gain immense strength and [[Embodiment]] with each life they took.

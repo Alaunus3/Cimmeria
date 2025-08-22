@@ -1,0 +1,1 @@
+A member of the [[Scale-Bound]] in [[Shyvale]], [[Rygoval]]. Worshipper of [[Ranas, The Havenseeker]]. Enleel is a bit of a self centered [[Anomai]] whose power can easily go to her head and jade her view. Bound to [[Eye-Una]]

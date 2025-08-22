@@ -1,0 +1,3 @@
+Ascended figure and leader of The [[Hyperion Plateau]] during The [[Era of Lords]]; also known as the first God-King. Esdrian Damascus was born in The [[Era of Apostasy]], right at its end to Eddira and [[Essolus, The Golden Peace]]; making him a Child of [[Divine]]. 
+
+Esdrian Damascus was also known as The Autarch throughout The Era of Lords; but was eventually killed by [[Zaleska Kaatha]]. After The [[Severance Conflicts]], Esdrian was the leader of [[The Augury]]

@@ -1,0 +1,1 @@
+A [[Divine]] created as a seed to be awakened when the [[Wyvern]] were destroyed; to harbor their pain

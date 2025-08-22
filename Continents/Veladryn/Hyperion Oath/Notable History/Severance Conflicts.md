@@ -1,0 +1,1 @@
+A series of Conflicts that occurred when [[Esdrian Damascus]] separated from The [[Erebos Council]] during The [[Era of Lords]] and founded [[The Augury]]

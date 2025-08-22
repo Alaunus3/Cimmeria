@@ -1,0 +1,1 @@
+An extinct type of creature, the last known one is The[[ Second Sun]], fleeing from the [[Beyond]] and hiding within The [[Aellorium]]

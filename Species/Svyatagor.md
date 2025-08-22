@@ -1,0 +1,1 @@
+A type of [[Obri]] commonly found on [[Veladryn]] and Eastern [[Thalvorys]]

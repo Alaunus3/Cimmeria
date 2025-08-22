@@ -1,0 +1,1 @@
+An Era in which the [[Kismet]] rose up and slaughtered the [[Divine]] en masse, leaving [[Cimmeria]] with little Divine energy.

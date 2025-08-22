@@ -1,0 +1,1 @@
+A [[Synthex]] from [[Beyond]]. A being that reshaped [[Cimmeria]] in hopes they would defend it from what was chasing it

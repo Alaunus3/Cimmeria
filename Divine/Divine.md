@@ -1,0 +1,1 @@
+A Divine is a mortal that was given power via The [[Veilfire]] when The [[Second Sun]] altered it, creating [[The Belt of Divinity]] 

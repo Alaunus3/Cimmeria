@@ -1,0 +1,1 @@
+[[Twin Royalty]] during the [[Era of Apostasy]] and ruler of the [[Devan]] Homeland

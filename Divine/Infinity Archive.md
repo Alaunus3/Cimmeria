@@ -1,0 +1,1 @@
+The grandest hold of knowledge in the history of [[Cimmeria]]. Frequented by Ixora scribes as well as several [[Divine]] such as [[Xurasil, Eye of Infinity]].

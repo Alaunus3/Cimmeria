@@ -1,0 +1,1 @@
+A woman who travelled across Cimmeria in its earliest of days. An extremely powerful druid and herald of The [[Wildsong]]; she is known by many names across many different nations and lands

@@ -1,0 +1,1 @@
+The last [[Asterized Houses]] head of House Asphodel, for centuries to come. Defeated [[Vaena]] while sacrificing himself to deal a great blow, an honorary [[Final Champion]]

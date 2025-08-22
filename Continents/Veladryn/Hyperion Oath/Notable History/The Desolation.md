@@ -1,0 +1,1 @@
+The day that the God-King [[Shoroh Morningstar]] used the combined power of the [[Divine]] and [[Aeon]] to swallow the stars with The [[Great Stag]] and rain meteors across the now [[Hyperion Oath]] in the largest display of arcane power [[Cimmeria]] has ever seen. 

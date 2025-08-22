@@ -1,0 +1,1 @@
+[[Ascended]] Patriarch of [[House Ixora]] [[Pre-Exodus]] during the end of The [[Era of Lords]]

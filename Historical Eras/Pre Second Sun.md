@@ -1,0 +1,1 @@
+Aeon is creating The Great Stag in order to fend off the oncoming Second Sun but is interrupted by Ikeshia and instead he uses it to strike back at Marques and kill him after Marques shatters him

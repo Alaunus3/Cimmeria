@@ -1,0 +1,1 @@
+The capital city of [[Jarcosia]]. Home to the Fallen [[Infinity Archive]] wing, renamed The [[Wing of Infinity]]; and made the primary building of The [[Paragonic Covenant]].

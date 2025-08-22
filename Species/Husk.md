@@ -1,0 +1,1 @@
+[[Human]] that had its [[Soul]] taken by The [[Second Sun]] and turned into [[Divine]] essence

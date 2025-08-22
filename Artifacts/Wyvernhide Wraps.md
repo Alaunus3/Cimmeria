@@ -1,0 +1,1 @@
+[[Cyrus Axelon]]'s Dragon gloves held in the Axelon Academy in The [[Hyperion Oath]]

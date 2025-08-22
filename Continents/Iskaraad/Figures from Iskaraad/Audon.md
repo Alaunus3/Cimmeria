@@ -1,0 +1,1 @@
+A mortal from the [[Era of Apostasy]] who created [[Tethyr]]'s all across [[Iskaraad]], all apexed by grand Obelisks. His goal was to trap the [[Divine]] in a cage upon Iskaraad and harness their energy in order to challenge [[Malbor]] for reign of The [[Bloodletters]]

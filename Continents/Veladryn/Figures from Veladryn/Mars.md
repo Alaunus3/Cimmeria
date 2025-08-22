@@ -1,0 +1,1 @@
+Mother of [[Corvus Gesamane]] and warlord upon [[Veladryn]] during the [[Era of Apostasy]]. 

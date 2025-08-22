@@ -1,0 +1,1 @@
+[[Final Champion]], and first Lightbringer of the [[Sonsraad]].

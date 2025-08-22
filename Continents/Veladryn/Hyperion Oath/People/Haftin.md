@@ -1,0 +1,1 @@
+A [[Kismet]] artificer from The [[Xeromo Basin]] [[Pre-Exodus]] who saved the [[Obake]] named [[Catseye]], his [[Soul]] eventually becoming a guardian of hers; and his form becoming the Obake's new form. Leading to the creation of [[Ember]], the first Obake with a soul.

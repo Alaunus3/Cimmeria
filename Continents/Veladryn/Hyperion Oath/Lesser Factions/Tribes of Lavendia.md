@@ -1,0 +1,1 @@
+Faction within The [[Hyperion Oath]], made mostly of [[Xomedan]]

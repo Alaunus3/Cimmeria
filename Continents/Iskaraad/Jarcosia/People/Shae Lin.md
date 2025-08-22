@@ -1,0 +1,1 @@
+Resident of [[Rimeda]], blind and uses curved [[Emjyorn]] daggers. One of the former [[Shepherds]] 

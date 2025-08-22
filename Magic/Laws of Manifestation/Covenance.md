@@ -1,0 +1,1 @@
+[[Law of Magic]] that states power can be gained with a trade off and an oath made between two creatures of power. 

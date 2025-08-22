@@ -1,0 +1,1 @@
+[[Law of Magic]], presence of self

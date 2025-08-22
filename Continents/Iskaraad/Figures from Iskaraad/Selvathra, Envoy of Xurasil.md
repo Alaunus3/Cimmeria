@@ -1,0 +1,1 @@
+The right hand servant to [[Xurasil, Eye of Infinity]] and scholar/guardian of The [[Infinity Archive]]. 

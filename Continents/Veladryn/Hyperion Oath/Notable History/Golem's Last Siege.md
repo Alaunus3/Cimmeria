@@ -1,0 +1,1 @@
+A war that on the day of [[The Desolation]], primarily a siege between the last remnants of [[Asami Navi]]'s Golem army and [[Vaelis Kuraokami]], who had been stuck within [[Palereach]] with [[House Zephross]]

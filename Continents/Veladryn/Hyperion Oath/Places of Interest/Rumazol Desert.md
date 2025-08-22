@@ -1,0 +1,1 @@
+A southern region in The [[Hyperion Oath]]; in The [[Era of Apostasy]] it was reigned over by [[Odrass, Divine of Mutation]] and held the nation of [[Ramillio]]

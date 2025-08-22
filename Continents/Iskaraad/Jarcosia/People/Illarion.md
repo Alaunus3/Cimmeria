@@ -1,0 +1,1 @@
+A member of the [[Calyptors]], A [[Jarcosian]] man with very slight [[Ryvarran]] heritage who dominated and bound himself to a [[Caeleo]]. Prior to binding with the Caeleo, Illarion was an Exarch; but after developing powers from the bond; including a control over crystals, altering his body. He became a Calyptor.

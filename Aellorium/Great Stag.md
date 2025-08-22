@@ -1,0 +1,1 @@
+Created by [[Aeon]] within a Chrysalis; The Great Stag was to be the protector of The [[Aellorium]], however when Aeon was broken, it was as well. It never got to protect as it was meant, it was only used to swallow the stars, giving Aeon power greater than all other Idols.

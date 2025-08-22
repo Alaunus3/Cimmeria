@@ -1,0 +1,1 @@
+Father of [[Cecilia]] and reincarnation [[Focus]] of [[Rae'Jann]]

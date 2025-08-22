@@ -1,0 +1,1 @@
+[[Divine]] who betrayed the [[Golden Order]]

@@ -1,0 +1,1 @@
+The path that The [[Second Sun]] took after breaking into the [[Aellorium]], creating [[Divine]] along its path.

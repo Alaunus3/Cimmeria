@@ -1,0 +1,1 @@
+The Heart of [[Vaena]] and birthplace of the [[C'Thari]]

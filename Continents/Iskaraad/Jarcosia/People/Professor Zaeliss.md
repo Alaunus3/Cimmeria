@@ -1,0 +1,1 @@
+Professor of Divine History at The [[Lassera Academy]] in [[Arch'Ava Castri]]

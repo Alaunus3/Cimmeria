@@ -1,0 +1,1 @@
+A type of [[Obri]] commonly found in mountain ranges with deep passages underground, enemies of subterranean [[Tareskan]] civilizations 

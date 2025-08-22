@@ -1,0 +1,1 @@
+A major faction in The [[Era of Lords]], [[Pre-Exodus]] consisting of the four great noble houses of [[Kismet]] on The [[Hyperion Plateau]]. 

@@ -1,0 +1,1 @@
+One of the largest and highest points in [[Cimmeria]]. The Lavender was unable to reach it. It was the primary area of causing the Exodus and of main events during [[Pre-Exodus]].

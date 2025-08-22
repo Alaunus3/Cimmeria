@@ -1,0 +1,1 @@
+Leader of The [[Calyptors]], Kiaru is a [[Jarcosian]] and due to his leadership of this black-ops organization he has gained significant power, becoming an almost defaulted leader of The [[Polaris]]

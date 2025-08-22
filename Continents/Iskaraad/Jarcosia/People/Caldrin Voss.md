@@ -1,0 +1,1 @@
+A [[Jarcosian]] member of the [[Calyptors]] whose proficient [[Marii]] killing abilities were shown in The [[Coil War]]. Despite his military accolades from The[[ Polaris]] just after the war, the [[Paragonic Covenant]] took a high ground approach to save future face and made Caldrin fall as a scapegoat to the many atrocities committed in the war.

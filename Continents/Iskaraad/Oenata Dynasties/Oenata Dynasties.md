@@ -1,0 +1,1 @@
+Political power on [[Iskaraad]]

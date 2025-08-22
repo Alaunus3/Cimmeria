@@ -1,0 +1,1 @@
+A creature on [[Cimmeria]] that can use the [[Blank]] to flicker themselves in and out of existence through their different realms and homes.

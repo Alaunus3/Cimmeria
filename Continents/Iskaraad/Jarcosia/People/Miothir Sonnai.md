@@ -1,0 +1,1 @@
+Headmaster of [[Siferth Academy ]]in [[Va'So Thaena]]. Was targeted by assassins of [[Zyrn]]. For her connection to [[Gorvhaith]].

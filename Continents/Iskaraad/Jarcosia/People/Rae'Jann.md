@@ -1,0 +1,1 @@
+The Old [[Calyptors]] , previous [[Jarcosian]] Focus reincarnation of [[Silas Grimm]]

@@ -1,0 +1,1 @@
+A citizen of [[Elleria]] Pre Second Sun. When The [[Second Sun]] comes, she is made into [[Sylvana, Divine of Foolish Death]]

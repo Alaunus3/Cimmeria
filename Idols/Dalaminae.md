@@ -1,0 +1,1 @@
+The [[Tapestry]]'s Sword. Sits upon the peaks in The [[Oenata Dynasties]], origin of the [[Eryndar]].

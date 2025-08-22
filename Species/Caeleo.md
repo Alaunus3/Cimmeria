@@ -1,0 +1,1 @@
+Wyvern-Like creatures granted to the Anomai people of [[Shyvale]], they're thought to be creatures of [[Ranas, The Havenseeker]]

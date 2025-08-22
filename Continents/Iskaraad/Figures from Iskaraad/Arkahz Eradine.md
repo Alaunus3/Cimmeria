@@ -1,0 +1,1 @@
+Headmaster in [[Aru'Adel]]of [[Nexarnas, Hold of Knowledge]] 

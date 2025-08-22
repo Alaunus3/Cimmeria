@@ -1,0 +1,1 @@
+The strongest member of [[The Gems]], with accessibility to limited magics

@@ -1,0 +1,1 @@
+Post-Exodus is an era in which the peoples of [[Cimmeria]] were freed from The [[Lavender]] by the [[Final Champion]]s

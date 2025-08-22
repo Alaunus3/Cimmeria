@@ -1,0 +1,1 @@
+A group of extremely powerful mortals who brought an end to The Lavender [[Pre-Exodus]], ended [[Stagnation]], and defeated [[Vaena]].

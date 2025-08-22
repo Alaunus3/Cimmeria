@@ -1,0 +1,1 @@
+Father of [[Malbor]], he was born of blood and regret. A [[Divine]] created by [[Transference]] and hatred.
