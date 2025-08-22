@@ -1,0 +1,7 @@
+{
+  "userIgnoreFilters": [
+    "bin/",
+    "content/",
+    "zola/"
+  ]
+}
